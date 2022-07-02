@@ -1,5 +1,7 @@
 ## Hi there 👋
 
+##### 2022-07-02 #####
+(15:53) 여기 뭐임? 이제 봤네요 -배휘진
 <!--
 
 **Here are some ideas to get you started:**
